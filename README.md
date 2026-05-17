@@ -1,2 +1,0 @@
-# sarah-reyes
-parasite distribution
